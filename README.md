@@ -1,2 +1,0 @@
-# savaliyakishan
-my pro
